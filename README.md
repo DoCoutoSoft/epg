@@ -1,4 +1,4 @@
-### Ultima Actualización 19/11/2023 - 16:10:05
+### Ultima Actualización 19/11/2023 - 16:12:21
 No hay actualizaciones de EPG temporalmente durante este período. Lo siento por los inconvenientes ocasionados
 
 
